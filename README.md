@@ -1,4 +1,12 @@
 ## Hi there 👋
+✅ Electro-Hammam
+✅ IST i80148, i80248
+👍🏻 Jestem kurwa architektem
+✅ **ASS**embly btw
+🗣️ My bro : @TheCawa
+✅ HE 3HAI0 4T0 D06ABuTb
+
+
 
 <!--
 **FLUSIKS/FLUSIKS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
