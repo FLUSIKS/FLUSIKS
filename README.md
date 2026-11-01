@@ -1,10 +1,16 @@
 ## Hi there 👋
 ✅ Electro-Hammam
+
 ✅ IST i80148, i80248
+
 👍🏻 Jestem kurwa architektem
+
 ✅ **ASS**embly btw
+
 🗣️ My bro : @TheCawa
+
 ✅ HE 3HAI0 4T0 D06ABuTb
+
 
 
 
