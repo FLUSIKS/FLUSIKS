@@ -7,7 +7,7 @@
 
 ✅ **ASS**embly btw
 
-🗣️ My bro : @TheCawa
+🗣️ My bro : [@TheCawa](https://github.com/TheCawa/IST/commits?author=TheCawa)
 
 ✅ HE 3HAI0 4T0 D06ABuTb
 
